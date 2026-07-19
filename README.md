@@ -1,10 +1,8 @@
-haiii!! welcome to my github!! >w<
+🦇 haiii!! welcome to my github!! >w<
 
-i'm **yumi**! i'm a roblox developer since 2020 and i'm known for my [Bloody Paws!](https://www.roblox.com/communities/16928578/Bloody-Paws#!/about) group and [Sanguine Fields](https://www.roblox.com/games/126210570846701/Sanguine-Fields).
+❤ i'm **yumi**! i'm a roblox developer since 2020 and i'm known for my [Bloody Paws!](https://www.roblox.com/communities/16928578/Bloody-Paws#!/about) group and [Sanguine Fields](https://www.roblox.com/games/126210570846701/Sanguine-Fields).
 
-### here's my carrd!! ^^
-
-https://miawnpaws.carrd.co
+🔗 here's my carrd!! ^^ https://miawnpaws.carrd.co
 
 <!--
 **miawnpaws/miawnpaws** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
